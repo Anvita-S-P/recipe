@@ -1,0 +1,1 @@
+Gobi Manchurian is a Indo Chinese dish.The Indo-Chinese Dish, Gobi Manchurian has crispy cauliflower florets tossed in a spicy, sweet and tangy manchurian sauce. Manchurian is the result of the adaptation of Chinese cooking and seasoning techniques to suit Indian tastes and has become a staple of Indian Chinese cuisine.
